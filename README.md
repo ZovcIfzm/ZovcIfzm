@@ -12,5 +12,5 @@ My name is Alex Ruan, a Masters student at the University of Michigan studying C
 **Links**  
 [LinkedIn](https://www.linkedin.com/in/alexruancs/)  
 [YouTube](https://www.youtube.com/channel/UCRZ6Ry59gP_ZWkoyZwfCccw/videos)  
-
+[Instagram](https://www.instagram.com/alex.ruan/)  
 
